@@ -1,0 +1,2 @@
+# Seminari-dhe-detyrat
+kk
